@@ -1,0 +1,8 @@
+---
+title: Verschaukelt
+author: Karin und Wolfgang Zwer
+date: 2016-10-26
+sourceName: Groß-Gerauer Echo
+---
+
+Was für eine Schlagzeile: "Der Bahnanschluss wird reaktiviert". Damit will Altmann punkten. Im Kleingedruckten steht dann der Haken: Altmann betont von vornherein, dass der Dornberger Bahnhof eigentlich zu klein sei für die Langzüge mit denen die Autos dort ankommen. Herr Hellwig, Prokurist von Altmann, erklärte in der Sitzung sogar, Altmann selbst habe es überhaupt nicht in der Hand, ob und wieviel Autos künftig per Bahn transportiert werden, denn darüber entscheide allein der Kunde! Grüne und SPD stellen angesichts nicht erwähnter Tatsachen, unklarer Zahlen und des Aussitzen von Missständen die Glaubwürdigkeit der Firma Altmann in Frage. Und nun reicht eine unverbindliche Absichtsbekundung zum Bahnanschluss um unsere gewählten Bürgervertreter milde zu stimmen? Ein Parkhaus statt der Versiegelung von 1,6Ha Fläche ist machbar, aber das Geld für ein Parkhaus will man als florierendes Unternehmen nicht in die Hand nehmen. Es ist billiger Ackerboden zu planieren! Der Profit eines Großunternehmens ist wichtiger als Nachhaltigkeit und die Lebensqualität in Groß-Gerau. Die Stadtverordneten sollten im Sinne der Bürger handeln, so wie sie es vor der Wahl versprochen haben, und große Firmen endlich in die Pflicht nehmen! Altmann macht es sich einfach: LKWs im Parkverbot sind laut Altmann allein Problem der Stadt. Bei der aktuellen Beleuchtungssituation müssen Anwohner beweisen, dass sie geblendet werden. Nur "hell“ muss man ertragen. Wir fühlen uns von vorne bis hinten verschaukelt!
